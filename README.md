@@ -1,0 +1,2 @@
+Learning and navigating github seems to be a little cumbersome for a first time user. It involves alot of practice to get used to the crannies of the system. 
+Overall,repeated practice can help achieve this as the system makes it simple and esually fast to discharge and complete duties.
